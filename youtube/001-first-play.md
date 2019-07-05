@@ -1,4 +1,4 @@
-So you had this friend that went to this thing called RLCS and couldn't stop talking about some world record wave they did while watching some soccer cars. Eventually they annoyed you enought that you decided to check the game out to shut them up even though you prefer Fortnite anyway.
+So you had this friend that went to this thing called RLCS and couldn't stop talking about some world record wave they did (:wave video from phone?:) while watching some soccer cars (:sarpbc clip? low level whiffing clip?:). Eventually they annoyed you enought that you decided to check the game out to shut them up even though you prefer Fortnite anyway.
 
 Or maybe you didn't hear it from anybody and saw it in a Steam sale or that weekend it was free on PlayStation decided to download it and couldn't convince any of your friends to play. That's cool too, welcome to the club.
 
